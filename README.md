@@ -1,1 +1,1 @@
-# GSOE9820-Engineering-Project-Management
+# GSOE9820-Engineering Project Management
